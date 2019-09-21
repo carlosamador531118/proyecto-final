@@ -1,1 +1,3 @@
 # proyecto-final
+estoy un poco loco dice la gente, porque a mis años estoy estudiando esta cosa,
+pero a mi ni se me hace que lo este tanto, asi que: adelanteeeee...
